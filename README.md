@@ -1,1 +1,1 @@
-# README
+# This is a rechart of Sanoboys vs whitty remix. Hopefully the charts are good when he releases the Gospel remix and charts. the only reason I did any of this is because I loved the idea and the remix but i hated the charts (no offense to SanoBoy) so if nobody else was going to rechart it i thought why not me. so bam this is why this exists lol.
